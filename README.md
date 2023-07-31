@@ -4,9 +4,13 @@
 - 📫 If you are looking for new opportunities, please do not hesitate to contact me via:
 - 
 💡 Linkedin: https://www.linkedin.com/in/truc-huynh-017193238/
+
 📧 Email: maitruc.viecoi@gmail.com
+
 ☎️ Phone: (+84) 287 3030 707 - Ext: 1020 (Ms. Trúc)
+
 📞 Zalo: 039 76 36 694
+
 📞 Skype: live:.cid.a16234f45ef4acfc
 
 Thank you for reaching out to my profile ✨
