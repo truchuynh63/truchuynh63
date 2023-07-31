@@ -9,6 +9,7 @@
 
 ☎️ Phone: (+84) 287 3030 707 - Ext: 1020 (Ms. Trúc)
 
+Please visit this link to find more jobs: https://docs.google.com/spreadsheets/d/1b3nUvyQqZRY2n39gbXIcxDYGrdY581HqvIltrXbBzPo/edit#gid=0
 
 Thank you for reaching out to my profile ✨
 
