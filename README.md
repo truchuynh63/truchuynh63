@@ -1,15 +1,10 @@
-- 👋 Hi, I’m Truc - Career Advisor/IT Recruiter of Viecoi Company
-- 👀 I’m interested in Human Resources and Information Technology
+- 👋 Hi, I’m Truc - Recruitment Consultant / Technical Recruiter
+- 👀 I'm passionate about Human Resources/Talent Acquisition and Information & Communications Technologies (ICT)
+~ A quick learner and a can-do attitude person, willing to learn new knowledge in any field
 - 💞️ I’m currently looking for Frontend - Backend - Fullstack Developer/Embedded Software Engineer/BrSE/...
 - 📫 If you are looking for new opportunities, please do not hesitate to contact me via:
  
 💡 Linkedin: https://www.linkedin.com/in/truc-huynh-017193238/
-
-📧 Email: maitruc.viecoi@gmail.com
-
-☎️ Phone: (+84) 287 3030 707 - Ext: 1020 (Ms. Trúc)
-
-Please visit this link to find more jobs: https://docs.google.com/spreadsheets/d/1b3nUvyQqZRY2n39gbXIcxDYGrdY581HqvIltrXbBzPo/edit#gid=0
 
 Thank you for reaching out to my profile ✨
 
