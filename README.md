@@ -1,4 +1,4 @@
-- 👋 Hi, I’m Truc - Recruitment Consultant / Technical Recruiter
+- 👋 Hi, I’m Truc - Talent Acquisition / Technical Recruiter
 - 👀 I'm passionate about Human Resources/Talent Acquisition and Information & Communications Technologies (ICT)
 ~ A quick learner and a can-do attitude person, willing to learn new knowledge in any field
 - 💞️ I’m currently looking for Frontend - Backend - Fullstack Developer/Embedded Software Engineer/BrSE/...
