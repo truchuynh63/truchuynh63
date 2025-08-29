@@ -7,7 +7,7 @@
 - 📫 If you are looking for new opportunities, please do not hesitate to contact me via:
  
 💡 Linkedin: https://www.linkedin.com/in/truc-huynh6368/
-Mail: huynhthimaitruc.work@gmail.com
+📫 Mail: huynhthimaitruc.work@gmail.com
 
 Thank you for reaching out to my profile ✨
 
